@@ -9,3 +9,5 @@
 #volgend hoofdstuk
 
 #hoofdstuk 3
+##the beginnings
+once upon a friyay afthernoon... in a grey wasteland there was a little girl
