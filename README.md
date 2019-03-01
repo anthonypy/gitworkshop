@@ -10,4 +10,4 @@
 
 #hoofdstuk 3
 ##the beginnings
-once upon a friyay afthernoon... in a grey wasteland there was a little girl
+once upon a friyay afthernoon... in a grey wasteland there was a little girl, she found a bug that she needed to kill to save the world!
