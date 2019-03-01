@@ -10,4 +10,4 @@
 
 #hoofdstuk 3
 ##the beginnings
-once upon a friyay afthernoon... in a grey wasteland there was a little girl
+once upon a friyay afthernoon... in a grey wasteland there was a little girl. She had some guidance by the one they called Master to get to the temple of scum
